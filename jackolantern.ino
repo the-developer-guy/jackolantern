@@ -2,7 +2,7 @@
 The Developer Guy
 Digital jack-o'-lantern
 Videos can be found here:
-  https://vid.me/SgUGe
+  https://vid.me/EtfWs
   https://youtu.be/ierrFn5CT3c
 
 2 LEDs to flicker
